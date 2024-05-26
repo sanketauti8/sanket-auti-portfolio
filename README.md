@@ -1,1 +1,0 @@
-# sanket-auti-portfolio
